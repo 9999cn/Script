@@ -1,4 +1,3 @@
-/*
 91 short video unlock vip
 This script is special, please dont like the video in the 91 app
 app download link : http://i91.porn
